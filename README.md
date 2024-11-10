@@ -1,4 +1,4 @@
-### Hi there 👋
+### Student at Coimbatore Institute of Technology | Ex-Intern at Logbase
 
 <!--
 **raksansuseendran/raksansuseendran** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
